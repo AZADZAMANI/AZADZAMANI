@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Parisa Azadzamani
-- 👀 I’m interested in working Cloud Projecs
+- 👀 I’m interested in working Technology.
 
 
 
