@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Parisa Azadzamani
-- 👀 I’m interested in working Technology.
+- 👀 I am passionate about DevOps and cloud technologies and eager to learn more about their applications and best practices.
 
 
 
